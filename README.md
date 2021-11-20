@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @zamalho
-- 👀 I’m interested in chance the world
+- 👀 I’m interested in change the world
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on canva
 - 📫 How to reach me gamerrenato68@gmail.com
